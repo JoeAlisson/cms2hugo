@@ -15,7 +15,7 @@ O incentivo ao avanço tecnológico, assim como a valorização de fatores subje
 \
           Assim mesmo, o julgamento imparcial das eventualidades prepara-nos para enfrentar situações atípicas decorrentes das novas proposições. Caros amigos, a competitividade nas transações comerciais cumpre um papel essencial na formulação dos métodos utilizados na avaliação de resultados. O que temos que ter sempre em mente é que a complexidade dos estudos efetuados assume importantes posições no estabelecimento das diretrizes de desenvolvimento para o futuro. Do mesmo modo, a percepção das dificuldades apresenta tendências no sentido de aprovar a manutenção de alternativas às soluções ortodoxas. Todas estas questões, devidamente ponderadas, levantam dúvidas sobre se a consulta aos diversos militantes ainda não demonstrou convincentemente que vai participar na mudança de todos os recursos funcionais envolvidos.
 
-![](img/blog-index.jpg)
+![algum alt text here](img/blog-index.jpg "subtitle here")
 
 \
           No entanto, não podemos esquecer que o acompanhamento das preferências de consumo promove a alavancagem do processo de comunicação como um todo. Não obstante, o entendimento das metas propostas agrega valor ao estabelecimento dos conhecimentos estratégicos para atingir a excelência. Neste sentido, a consolidação das estruturas não pode mais se dissociar dos relacionamentos verticais entre as hierarquias. Ainda assim, existem dúvidas a respeito de como a necessidade de renovação processual é uma das consequências das posturas dos órgãos dirigentes com relação às suas atribuições.\
